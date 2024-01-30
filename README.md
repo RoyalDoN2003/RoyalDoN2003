@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **himanshubaweja395@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/my-drive](https://drive.google.com/drive/u/0/my-drive)
+- 📄 Know about my experiences [https://drive.google.com/drive/u/0/my-drive](https://drive.google.com/file/d/1MBrPgjkJS3ygOFMZteCDSc6hcu1v6eT9/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
